@@ -1,5 +1,6 @@
 # anticoboi
 How to protect your fb account from koboi / kenang akun
+![WhatsApp Image 2022-06-16 at 22 09 20](https://user-images.githubusercontent.com/33658027/174101614-3d6fa308-96d8-4ea1-b3c9-218c9c71c45c.jpeg)
 
 ![287170539_754007885780073_8960858079805876958_n](https://user-images.githubusercontent.com/33658027/174100007-2b28580e-b467-4cc2-bad0-fc7ee5b5371a.jpg)
 
